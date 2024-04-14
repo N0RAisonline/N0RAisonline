@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @N0RAisonline
 - 👀 I’m interested in drawing, crochet, games- all dat.
-- 🌱 I’m currently learning java, and now C#
+- 🌱 I’m currently learning java, and now C# as sophmore in college
 - 💞️ I’m looking to collaborate on games, or just small projects for the summer.
 - 📫 How to reach me, message me first :3
 - 😄 Pronouns: any, or they/them works too, I'm not partial.
